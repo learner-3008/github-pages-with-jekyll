@@ -1,5 +1,5 @@
 ---
-title: "Welcome to my blog"
+title: "getting started"
 ---
 
-I'm glad you are here. I plan to talk about ...
+keep moving responsibly and doing your duty and enjoy your life. be use to the society and have a family  to pass on ideas and ideology.
